@@ -1,4 +1,4 @@
-# · · ────── ꒰ঌ·✦·໒꒱ ────── · · · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
+# ♡
 ![tumblr_e29946586ef29cedfb65d37608a60f61_35a759e3_1280](https://github.com/user-attachments/assets/0f29c374-92aa-4007-b553-a5b4bf11d16d)
 
 <img width="1881" height="163" alt="tumblr_01cd1d1dbcb8c6fe7cc3f711cfa70aec_47f3779e_2048" src="https://github.com/user-attachments/assets/30679c43-d3ad-438f-a20d-f5facc6d8f32" />
