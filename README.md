@@ -11,6 +11,8 @@ Please feel free to stay, explore, and get comfortable here.
 
 ✧ Pony Town :
 
+»-→ I use 360 models to create pony cosplays. You can always find them everywhere in the internet.
+
 »-→ C+H is always okay. I enjoy company while idling or hanging around.
 
 <img width="2048" height="123" alt="tumblr_1008fe0b03cac603375c0c812938cdc1_696e5a54_2048" src="https://github.com/user-attachments/assets/8832816f-9e04-48b5-9a3a-292df5616555" />
@@ -37,7 +39,11 @@ negative or harmful behavior
 
 
 
+
+
 ✦ More info & socials ✦
+
+
 Everything else can be found on my Carrd below.
 
 
