@@ -3,7 +3,7 @@
 
 <img width="1881" height="163" alt="tumblr_01cd1d1dbcb8c6fe7cc3f711cfa70aec_47f3779e_2048" src="https://github.com/user-attachments/assets/30679c43-d3ad-438f-a20d-f5facc6d8f32" />
 
-Please feel free to stay, explore, and get comfortable here.
+![Profile views](https://komarev.com/ghpvc/?username=vielani&label=Profile%20Views&color=FFD966&style=flat)
 
 ![tumblr_828df12a02420715abbeca476d7094f3_a7e56042_1280](https://github.com/user-attachments/assets/2efa79c8-15ad-41f0-bb27-a82a06e91c8e)
 
