@@ -18,5 +18,7 @@ vie ♡ you !! ; everything you need to know abt me is in my carrd
 [![visit my carrd meoww](https://img.shields.io/badge/carrd%20-%23FFFFFF?style=flat)](https://vielani.carrd.co)
 
 
+[fav music btw](https://soundcloud.com/yeniie-oik/cheeseball-by-martin-mars-cortis-live-weverse-25112025?si=abda8dbde6714d3db0752b59d502039f&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
+
 
 
