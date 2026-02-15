@@ -24,7 +24,7 @@
 [![visit my carrd meoww](https://img.shields.io/badge/carrd%20-%23FFFFFF?style=flat)](https://vielani.carrd.co)
 
 
-<sup><sub>Follow me for a cookie 🍪</sub></sup>
+<sup><sub>Follow me for a free cookie 🍪</sub></sup>
 
 ----
 
