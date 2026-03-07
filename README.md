@@ -30,8 +30,5 @@
 
 
 
-special mention 
-
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=1000&color=4FB0FFF6&width=435&lines=ivvii%2C+kerv%2C+kku%2C+ruby%2C+kojako%2C+veve;+seuta%2C+mar%2C+ires%2C+selene%2C+and+you!!;)](https://git.io/typing-svg)
-
+## Special mention to my /purr and /kku friends and community . LOVE !!
+play the trailer
