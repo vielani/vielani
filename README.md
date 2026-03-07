@@ -20,3 +20,6 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fjxxeuyl2fhkgy5lrbidri26fa&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=true&bar_color_cover=false&bar_color=67c360)](https://github.com/kittinan/spotify-github-profile)
 
 special mention 2 my /purr friends n community . LOVE!
+
+
+![Untitled229_20260307220037](https://github.com/user-attachments/assets/4945d970-9816-4706-8eac-3b0f29d1eaa6)
