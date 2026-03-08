@@ -21,7 +21,5 @@
 
 special mention 2 my /purr friends n community . LOVE!
 
-Entertain yourself w/ this code ( creates a word cloud out of your comments )
-
-![Screenshot_20260306_140336](https://github.com/user-attachments/assets/9447a67e-7339-424b-8cb8-9eb7f9f59273)
+Entertain yourself [here](https://www.menti.com/alfqobc9fnc4) . Creates a word cloud w/ your comment along with the community)
 
