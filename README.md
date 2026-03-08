@@ -25,3 +25,5 @@ special mention 2 my /purr friends n community . LOVE!
 
 Answer mentimeter [here](https://www.menti.com/al7njhkkmh5w) . view everyone's responses [here](https://www.mentimeter.com/app/presentation/alsytudi8bxpbtkex3cpecjg9qmuzzgc/edit?question=pf2mxxgztibn)
 
+if u answer/sign my menti, youre cool. if you don't , OH WHAT AN L
+
