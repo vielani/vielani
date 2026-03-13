@@ -3,7 +3,7 @@
 
 
 
-![Profile views](https://komarev.com/ghpvc/?username=vielani&label=fruitcakes%20&color=A3DB74&style=square)
+![Profile views](https://komarev.com/ghpvc/?username=vielani&label=tomatoes+thrown+at+me%20&color=A3DB74&style=square)
 
   
 <img width="200" height="200" alt="___ೃ__-removebg-preview" src="https://github.com/user-attachments/assets/ac569f22-f3d0-4875-8728-f54c222ea5fb" />
