@@ -10,5 +10,11 @@
 
 <sub><a href="https://vielani.carrd.co">CARRD</a></sub> . <sub><a href="https://guns.lol/vielani">GUNS.LOL</a></sub>
 
+
+
+$\color{#ADE876}{\textsf{cud comf . int freely}}$
+
+
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fjxxeuyl2fhkgy5lrbidri26fa&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=true&bar_color_cover=false&bar_color=67c360)](https://github.com/kittinan/spotify-github-profile)
 
