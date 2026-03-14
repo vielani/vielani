@@ -8,7 +8,7 @@
   
 <img width="200" height="200" alt="___ೃ__-removebg-preview" src="https://github.com/user-attachments/assets/ac569f22-f3d0-4875-8728-f54c222ea5fb" />
 
-<sub><a href="https://vielani.carrd.co">CARRD</a></sub> . <sub><a href="https://guns.lol/vielani">GUNS.LOL</a></sub>
+<sub><a href="https://vielani.carrd.co">CARRD</a></sub> . <sub><a href="https://guns.lol/vielani">GUNS.LOL</a></sub> . <sub><a href="https://askvie.straw.page">FAQ</a></sub>
 
 
 
